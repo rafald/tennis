@@ -3,6 +3,7 @@
 1. swing towards the ball (not to the target)
 1. transfer weight into the ball
 1. as we hitting the ball we changing outword swing path and outward weight transfer toward the target
-Applies to all shots except backhand slice - 
+
+Applies to all shots except backhand slice for which 1. is suspended (out body face to the side not to the ball) but 2,3, and 4 are still in force.
 [![Watch the video](https://i3.ytimg.com/vi/oor0faEKwBo/hqdefault.jpg)](https://youtu.be/oor0faEKwBo&t=656)	
 
