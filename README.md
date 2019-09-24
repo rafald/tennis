@@ -12,3 +12,8 @@ Applies to all shots except backhand slice for which 1. is suspended (out body f
 Outward inward swing path
 
 [![Watch the video](https://i3.ytimg.com/vi/GeElHXkCG7g/hqdefault.jpg)](https://youtu.be/GeElHXkCG7g?t=744)	
+
+
+[![Watch the video](https://i3.ytimg.com/vi/oMMIsk5xJDM/hqdefault.jpg)](https://youtu.be/oMMIsk5xJDM?t=744)	
+
+[![Watch the video](https://i3.ytimg.com/vi/pszl9B1PFCY/hqdefault.jpg)](https://youtu.be/pszl9B1PFCY?t=744)	
