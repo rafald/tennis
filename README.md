@@ -17,3 +17,6 @@ Outward inward swing path
 [![Watch the video](https://i3.ytimg.com/vi/oMMIsk5xJDM/hqdefault.jpg)](https://youtu.be/oMMIsk5xJDM?t=744)	
 
 [![Watch the video](https://i3.ytimg.com/vi/pszl9B1PFCY/hqdefault.jpg)](https://youtu.be/pszl9B1PFCY?t=744)	
+
+# Serve
+[Non-dominant arm](https://youtu.be/g65JysBvGoE?t=55)
