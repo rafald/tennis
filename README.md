@@ -21,3 +21,6 @@ Outward inward swing path
 [Non-dominant arm](https://youtu.be/g65JysBvGoE?t=55)
 ## Pronantion
 [![Watch the video](https://i3.ytimg.com/vi/pszl9B1PFCY/hqdefault.jpg)](https://youtu.be/pszl9B1PFCY?t=744)	
+
+## Why we need to finish the stroke?
+[![Watch the video](https://i3.ytimg.com/vi/O9mm58MVmPI/hqdefault.jpg)](https://youtu.be/O9mm58MVmPI?t=47)
